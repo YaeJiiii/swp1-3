@@ -1,2 +1,9 @@
-YaeJi Kim 20223058
-Kookmin Univ. SW
+YaeJi Kim	20223858
+KookminUniv. SW
+
+
+
+
+
+
+
